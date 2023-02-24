@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm looking to work in field of machine learning and AI<br>I'm currently Learning data science 
+I'm looking for opportunity in field of machine learning and data science <br>I'm currently doing internship at excelR bangalore and actively looking for job. 
 
 
 ## 🌐 Socials:
